@@ -5,7 +5,6 @@
 - 📫 How to reach me: At the discussion tabs on my repos or Email me at wyattvandolen@gmail.com
 - 😄 Pronouns: He/Him/impulse?
 
-<!---
-Impulse706/Impulse706 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+CHECK OUT OUR YOUTUBE CHANNEL!
+
+youtube.com/@Kitas-777
