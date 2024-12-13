@@ -7,4 +7,4 @@
 
 CHECK OUT OUR YOUTUBE CHANNEL!
 
-https://www.youtube.com/@Kitas-777
+https://www.youtube.com/@Stratamesh
